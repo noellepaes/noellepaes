@@ -1,4 +1,4 @@
-<img align="right" width="400" height="400" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fhi-gifs&psig=AOvVaw1mQCb1YNvAAokEt6TNGs3T&ust=1742524960761000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJDVxsbRl4wDFQAAAAAdAAAAABA7">
+<img align="right" width="400" height="400" src="https://media1.tenor.com/m/Ujz1AMoesGsAAAAC/%D9%83%D8%B3%D9%85%D9%83-cats.gif">
 
 
 # Welcome!
