@@ -1,4 +1,4 @@
-<img align="right" width="400" height="400" src="![Image](https://github.com/user-attachments/assets/8e5d6383-e851-4cdb-a64b-994739c1fad0)">
+<img align="right" width="400" height="400" src="https://cdn.pixabay.com/animation/2023/05/17/16/04/16-04-26-783_512.gif">
 
 
 # Welcome!
