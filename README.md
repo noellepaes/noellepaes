@@ -4,9 +4,9 @@
 # Welcome!
 ## I'm Noelle! Let me present a little about myself :D
 
-Full-Stack focused in Java and Angular | Software engineer :robot:
+Full-Stack focused in Java and Angular | Software engineer 😸:
 
-Lover of Technology and coding :heart:
+Passionate about Technology and coding 💻:
 
 
 
